@@ -18,15 +18,20 @@
 </p>
 
 <p align="center">
-  I'm usually active in VN and Safe servers.
+  I usually operate on the Vietnamese server or Safe.
   <br>
-  I might go AFK to study or read,
+  I might go AFK to study or read.
   <br>
 </p>
 
 <p align="center">
-  ── ⋆⋅☆⋅⋆ ──
+ 💐 ── ⋆⋅☆⋅⋆ ── 💮
 </p>
+
+<p align="center">
+  <img src="https://github.com/Macherieei/Macherieei/blob/0353adf377356328ef8e075d1354939823f05e6f/ab6a3c6cac95e0c2e0771d0be9b37a7c.gif" width="220">
+</p>
+
 
 <p align="center">
   ୨୧ thanks for visiting my little world ୨୧
