@@ -4,7 +4,7 @@
 </p>
 
 <p align="center">
-  🎀 ── ⋆⋅☆⋅⋆ ── 🎀
+  🌸 ── ⋆⋅✧°• ── 🌸
 </p>
 
 
@@ -14,15 +14,14 @@
 
 
 <p align="center">
-  ୨୧ artist · multifandom · skin maker ୨୧
+  ୨୧ Writer· multifandom · Intp ୨୧
 </p>
 
 <p align="center">
   I'm usually active in VN and Safe servers.
   <br>
-  I'm pretty chill, but I might go AFK to make skins,
+  I might go AFK to study or read,
   <br>
-  so feel free to whisper me! ♡
 </p>
 
 <p align="center">
