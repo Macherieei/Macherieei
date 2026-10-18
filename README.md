@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img src="Messenger_creation_C8ED60AD-4E98-4A0D-B8DD-3404549B00F6.gif" width="220">
+  <img src="C8ED60AD-4E98-4A0D-B8DD-3404549B00F6.gif" width="220">
 </p>
 
 <p align="center">
@@ -29,5 +29,5 @@
 
 <p alingn="center">
     <img 
-scr="Messenger_creation_2DE7F4C0-20A3-4DB9-B2F9-2C38B6C898CE.gif">
+scr="2DE7F4C0-20A3-4DB9-B2F9-2C38B6C898CE.gif">
 </p>
