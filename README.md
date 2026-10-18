@@ -1,6 +1,6 @@
-<h1 align="center">𐙚 𝑭𝒆𝒓𝒏 𐙚</h1>
+<h1 align="center">𐙚 𝑬𝒍𝒆𝒐𝒏𝒆 𝑴𝒂𝒓𝒐𝒎𝒆𝒂 𐙚</h1>
 <p align="center">
-  <i>FernPottiz · Any ♡</i>
+  <i>Maritiene · Any ♡</i>
 </p>
 
 <p align="center">
@@ -8,7 +8,7 @@
 </p>
 
 <p align="center">
-  <img src="https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif" width="220">
+  <img    src="fd008a95148716c652fe28157e2e5c54.gif" width="220">
 </p>
 
 <p align="center">
