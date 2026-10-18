@@ -1,23 +1,27 @@
-<h1 align="center">𐙚 𝑬𝒍𝒆𝒐𝒏𝒆 𝑴𝒂𝒓𝒐𝒎𝒆𝒂 𐙚</h1>
-<p align="Center">
-  <i>Mastier · Any ♡</i>
+<h1 align="center">𐙚 𝑭𝒆𝒓𝒏 𐙚</h1>
+<p align="center">
+  <i>FernPottiz · Any ♡</i>
 </p>
 
 <p align="center">
-  🌸 ── ⋆⋅✧⋅⋆ ── 🌸
+  🎀 ── ⋆⋅☆⋅⋆ ── 🎀
 </p>
 
 <p align="center">
-  <img src="C8ED60AD-4E98-4A0D-B8DD-3404549B00F6.gif" width="220">
+  <img src="https://media.giphy.com/media/JIX9t2j0ZTN9S/giphy.gif" width="220">
 </p>
 
 <p align="center">
-  ୨୧ writer · multifandom · intp ୨୧
+  ୨୧ artist · multifandom · skin maker ୨୧
 </p>
 
 <p align="center">
-  I'm usually AFK, so just whisper to me.
+  I'm usually active in VN and Safe servers.
   <br>
+  I'm pretty chill, but I might go AFK to make skins,
+  <br>
+  so feel free to whisper me! ♡
+</p>
 
 <p align="center">
   ── ⋆⋅☆⋅⋆ ──
