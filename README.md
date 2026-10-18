@@ -1,16 +1,33 @@
-## Hi there 👋
+<h1 align="center">𐙚 𝑬𝒍𝒆𝒐𝒏𝒆 𝑴𝒂𝒓𝒐𝒎𝒆𝒂 𐙚</h1>
+<p align="Center">
+  <i>Mastier · Any ♡</i>
+</p>
 
-<!--
-**Macherieei/Macherieei** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  🌸 ── ⋆⋅✧⋅⋆ ── 🌸
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  <img src="Messenger_creation_C8ED60AD-4E98-4A0D-B8DD-3404549B00F6.gif" width="220">
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+  ୨୧ writer · multifandom · intp ୨୧
+</p>
+
+<p align="center">
+  I'm usually AFK, so just whisper to me.
+  <br>
+
+<p align="center">
+  ── ⋆⋅☆⋅⋆ ──
+</p>
+
+<p align="center">
+  ୨୧ thanks for visiting my little world ୨୧
+</p>
+
+<p alingn="center">
+    <img 
+scr="Messenger_creation_2DE7F4C0-20A3-4DB9-B2F9-2C38B6C898CE.gif">
+</p>
