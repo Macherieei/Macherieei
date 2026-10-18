@@ -26,8 +26,3 @@
 <p align="center">
   ୨୧ thanks for visiting my little world ୨୧
 </p>
-
-<p alingn="center">
-    <img 
-scr="2DE7F4C0-20A3-4DB9-B2F9-2C38B6C898CE.gif">
-</p>
