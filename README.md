@@ -1,6 +1,6 @@
 <h1 align="center">𐙚 𝑬𝒍𝒆𝒐𝒏𝒆 𝑴𝒂𝒓𝒐𝒎𝒆𝒂 𐙚</h1>
 <p align="center">
-  <i>Maritiene · Any ♡</i>
+  <i>Maritiene · Arietmena ♡</i>
 </p>
 
 <p align="center">
