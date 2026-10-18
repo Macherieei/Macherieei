@@ -7,11 +7,11 @@
   🎀 ── ⋆⋅☆⋅⋆ ── 🎀
 </p>
 
+
 <p align="center">
-<img
-scr="fd008a95148716c652fe28157e2e5c54.gif"
-  
+  <img src="https://github.com/Macherieei/Macherieei/blob/c71f00863cf9b5b2f9071f6b720d09b966f9c1fe/fd008a95148716c652fe28157e2e5c54.gif" width="220">
 </p>
+
 
 <p align="center">
   ୨୧ artist · multifandom · skin maker ୨୧
