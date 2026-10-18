@@ -8,7 +8,8 @@
 </p>
 
 <p align="center">
-  <img src="./assets/fd008a95148716c652fe28157e2e5c54.gif" width="220">
+  <img src="https://ten-mien-cua-ban.com" width="220">
+
 
 
 </p>
