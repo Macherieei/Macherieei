@@ -8,8 +8,7 @@
 </p>
 
 <p align="center">
-  <img 
-  scr="fd008a95148716c652fe28157e2e5c54.gif" width="220"> 
+  
 </p>
 
 <p align="center">
